@@ -1,7 +1,7 @@
 # EDITION-2025-Brawl-Stars-Free-Gems-Link-CODE-Without-Verification
 Brawl Stars is a popular mobile multiplayer online battle arena (MOBA) game developed by Supercell, the creators of other well-known games like Clash of Clans and Clash Royale. Released globally in December 2018, the game has gained a massive following due to its fast-paced, action-packed gameplay and regular content updates.
 
-Here are some key features of Brawl Stars:
+<h2><a href="https://allresources.xyz/brawlstars.html/">Here are some key features of Brawl Stars Free Gems:</a></h2>
 
 Gameplay
 3v3 Team Battles: Players compete in real-time multiplayer matches. Some modes feature teams of three players, while others have different formats like solo or duo battles.
